@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning software engineering atISBAT University
 - 💞️ I’m looking to collaborate on various activities regarding IT
 - 📫 How to reach me 
-+25678442714/+256708334730
++256784427140/+256708334730
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
